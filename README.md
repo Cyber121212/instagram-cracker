@@ -8,4 +8,4 @@ crack insta account from following / search
 # USE PYTHON 2
 
 # help
-if u guys need help pls add me on deezcord ( discord ) root#1697
+I will not reply to your dm
